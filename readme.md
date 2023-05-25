@@ -1,2 +1,2 @@
 20233108  chajunho
-KookMin UNIV.
+KookMin UNIV
